@@ -6,7 +6,7 @@ Citrus Limes - Group 40
 
 JOG288@pitt.edu John - Parks
 
-Jade - City-held land
+jch191@pitt.edu Jade - City-held land
 
 sjb297@pitt.edu Sidney - Playgrounds
 
