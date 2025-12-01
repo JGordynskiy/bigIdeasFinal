@@ -4,11 +4,11 @@ John Gordynskiy, Jade Hagner, Sidney Babiiha
 
 Citrus Limes - Group 40
 
-John - Parks
+JOG288@pitt.edu John - Parks
 
 Jade - City-held land
 
-Sidney - Playgrounds
+sjb297@pitt.edu Sidney - Playgrounds
 
 Links used:
 
