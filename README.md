@@ -4,9 +4,9 @@ John Gordynskiy, Jade Hagner, Sidney Babiiha
 
 Citrus Limes - Group 40
 
-John - Parks
-Jade - City-held land
-Sidney - Playgrounds
+/n John - Parks
+/n Jade - City-held land
+/n Sidney - Playgrounds
 
 Links used:
 City of Pittsburgh Parks: https://data.wprdc.org/datastore/dump/fa329e3d-89ff-4708-8ddf-81bfedcad11d
